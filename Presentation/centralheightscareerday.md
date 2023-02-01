@@ -65,8 +65,8 @@ David Young, Software Engineer @ GitHub
 
 * New problems every day 😂
 * Occassional long hours, especially if you are on call ☎️
-* Periods of stress when shooting to hit a deadline for a release 🕛
-* Challenging to get everone on the same page and goal
+* Periods of stress when aiming to hit a deadline for a release 🕛
+* Challenging to get everyone on the same page and goal 📃
 
 ---
 
